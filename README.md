@@ -1,4 +1,4 @@
-# 🎬 **Your Favorite Series and Movies**
+# 🎬 **Favorite Series and Movies**
 
 ## 🏅 **Sports Anime**
 Sports anime are animated series that revolve around athletic competitions, teamwork, and the personal growth of players. They often feature intense rivalries, dramatic storylines, and inspiring moments. Popular examples include:
